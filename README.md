@@ -4,4 +4,6 @@ Olá! Bem-vindo ao meu Book Cook:wave:
 
 - Strogonoff de Frango;
 
+- Pavê;
+
   
